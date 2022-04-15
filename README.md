@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MYLILBROHASACRUSH
-- 👀 I’m interested in amongus mods
+- 👀 I’m interested in among us mods
 - 🌱 I’m currently learning fortnite
 - 💞️ I’m looking to collaborate on video games
 - 📫 How to reach me Twitch
